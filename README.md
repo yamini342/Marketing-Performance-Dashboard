@@ -23,8 +23,5 @@ YouTube delivered highest ROI.
 Meta underperformed relative to spend.
 
 # Business Recommendation
-Reallocate budget toward high-ROI channels..
-
-🔹 Business Recommendation
-
 Reallocate budget toward high-ROI channels.
+
